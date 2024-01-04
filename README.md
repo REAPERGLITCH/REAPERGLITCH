@@ -5,3 +5,4 @@
 - 📫 How to reach me, you can reach me at 1 of 2 emails, either bhullara@mulgrave.com, or, arjunsbhullar@icloud.com.
 <!---
 REAPERGLITCh
+anyone can join me on my coding journey and help me along the way, so just click on the email link and send me a messege so you can contact me and ill send you an invite so we can code together
